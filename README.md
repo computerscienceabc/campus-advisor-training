@@ -1,2 +1,1 @@
 # campus-advisor-training
-trjjjr
